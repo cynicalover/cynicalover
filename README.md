@@ -18,9 +18,9 @@
      ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://github.com/6ullets">my loyal uraume.
   </a>
 </details>
-<p align="left"
+<a align="left"
 <a href="https://guns.lol/cynicalover">guns.lol
-</p>
-<p align="right"
+</a>
+<a align="right"
 <a href="https://cynicalover.atabook.org/">sign my ata
-</p>
+</a>
