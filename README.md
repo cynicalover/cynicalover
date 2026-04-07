@@ -5,5 +5,5 @@
 <img align="left" width="100" src="https://media.discordapp.net/attachments/1118272529061134428/1491149509529567535/2ffac5bc61d57f106a9dbf280cb7c7b5.jpg?ex=69d6a4b3&is=69d55333&hm=a02c780d31e29ed55154193963b239eca8ef7b8ba248c2d69bca6fa50dc8aa60&=&format=webp"
 </p>
 <p align="center">
-<img align="center"  width="200" src="https://images-ext-1.discordapp.net/external/qu5Mf105h-w8r-6gt0LLqxteSzeBVS6XGoD2u5s0UcU/https/files.catbox.moe/xn25ol.gif"
+<img align="center"  width="190" src="https://images-ext-1.discordapp.net/external/qu5Mf105h-w8r-6gt0LLqxteSzeBVS6XGoD2u5s0UcU/https/files.catbox.moe/xn25ol.gif"
 </p>
