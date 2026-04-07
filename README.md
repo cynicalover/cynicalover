@@ -10,7 +10,7 @@
   <details>
  <summary>...</summary>
 <p align="left">
-<img align="left" width="160" height="200" src="https://i.pinimg.com/736x/c5/a0/89/c5a08960c26b18e717ac53bf359c4238.jpg" />
+<img align="left" width="160"  src="https://i.pinimg.com/736x/c5/a0/89/c5a08960c26b18e717ac53bf359c4238.jpg" />
 </p>
   <a align="left" dir="auto">&lrm; &lrm; &lrm;
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi don't mind c+h ; dnc thanks. — don't expect me to int w you, if i do, it might be in character.
