@@ -10,7 +10,7 @@
   <details>
  <summary>...</summary>
 <p align="left">
-<img align="left" width="170"  src="https://i.pinimg.com/736x/aa/b8/e2/aab8e27c92fb86f1d4a70e905bd124ae.jpg" />
+<img align="left" width="170"  src="https://media.discordapp.net/attachments/1118272529061134428/1491201029180493936/Sukuna_lets_go_of_his_curse2.jpg?ex=69d6d4ae&is=69d5832e&hm=5ceb22ab6d738d5a814780da7ec9c30674c188ea43271d46276ae374874b249f&=&format=webp" />
 </p>
   <a align="left" dir="auto">&lrm; &lrm; &lrm;
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi don't mind c+h ; dnc thanks. — don't expect me to int w you, if i do, i might be dry.
