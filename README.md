@@ -21,6 +21,8 @@
 <a align="left"
 <a href="https://guns.lol/cynicalover">guns.lol
 </a>
+
+    
 <a align="right"
 <a href="https://cynicalover.atabook.org/">sign my ata
 </a>
