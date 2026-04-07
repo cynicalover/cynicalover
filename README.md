@@ -10,7 +10,7 @@
   <details>
  <summary>...</summary>
 <p align="center">
-<img align="left" width="170" src="https://media.discordapp.net/attachments/1118272529061134428/1491149509529567535/2ffac5bc61d57f106a9dbf280cb7c7b5.jpg?ex=69d6a4b3&is=69d55333&hm=a02c780d31e29ed55154193963b239eca8ef7b8ba248c2d69bca6fa50dc8aa60&=&format=webp"
+<img align="left" width="140" src="https://media.discordapp.net/attachments/1118272529061134428/1491149509529567535/2ffac5bc61d57f106a9dbf280cb7c7b5.jpg?ex=69d6a4b3&is=69d55333&hm=a02c780d31e29ed55154193963b239eca8ef7b8ba248c2d69bca6fa50dc8aa60&=&format=webp"
 </p>
   <a align="left">
     i don't mind c+h ; don't expect me to int w you, 
