@@ -18,6 +18,9 @@
      ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://github.com/6ullets">my loyal uraume.
   </a>
 </details>
+    <p align="center">
+      <img align="center" width="200" src="https://media.discordapp.net/attachments/1118272529061134428/1491201029180493936/Sukuna_lets_go_of_his_curse2.jpg?ex=69d6d4ae&is=69d5832e&hm=5ceb22ab6d738d5a814780da7ec9c30674c188ea43271d46276ae374874b249f&=&format=webp">
+      <p/>
 <a align="left"
 <a href="https://guns.lol/cynicalover">guns.lol
 
