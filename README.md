@@ -1,5 +1,5 @@
 <a href="https://git.io/typing-svg">
-<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=10000&pause=1000&color=fffff&center=true&width=435&lines=malevolent+shrine+.+.+." alt="Typing SVG" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=10000&pause=1000&color=#FFFFFFFF&center=true&width=435&lines=malevolent+shrine+.+.+." alt="Typing SVG" />
 </a>
 <p align="center">
 <img align="center" width="1000" src="https://static.wikia.nocookie.net/jujutsu-kaisen/images/0/0d/Unlimited_Void_vs._Malevolent_Shrine.png/revision/latest/scale-to-width-down/1000?cb=20240211155227">
