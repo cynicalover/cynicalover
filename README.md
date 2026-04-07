@@ -1,5 +1,5 @@
 <p align="center">
-<img align="center" width="1000" src="https://media.discordapp.net/attachments/1118272529061134428/1491186310885408808/lflnqoeulgsb1.jpg?ex=69d6c6f9&is=69d57579&hm=b5c49c68256c475140689f2b4c2b59eb59191ab55ddf0324e02889c7c141fd59&=&format=webp&width=1862&height=618">
+<img align="center" width="1100" src="https://media.discordapp.net/attachments/1118272529061134428/1491186310885408808/lflnqoeulgsb1.jpg?ex=69d6c6f9&is=69d57579&hm=b5c49c68256c475140689f2b4c2b59eb59191ab55ddf0324e02889c7c141fd59&=&format=webp&width=1862&height=618">
 </p>
 <p align="center">
   	‟ I understand love and I say to you... love is worthless. 
