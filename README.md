@@ -1,4 +1,4 @@
-<a href="https://git.io/typing-svg">
+<a href="https://git.io/typing-svg" align="center">
 <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=10000&pause=1000&color=FFFFFFFF&center=true&width=435&lines=malevolent+shrine+.+.+." alt="Typing SVG" />
 </a>
 <p align="center">
