@@ -6,18 +6,6 @@
   I've never needed anyone to satisfy me. I eat when I wanna eat, play with what amuses me, and kill whoever's in my way. 
   I live as befits my nature. If no one can grasp that, then that's their problem. ”
 </p>
-<div align="center">
-  <details>
- <summary>...</summary>
-<p align="left">
-<img align="left" width="220"  src="https://media.discordapp.net/attachments/1118272529061134428/1491203942669881354/Sukuna_lets_go_of_his_curse2.jpg?ex=69d6d765&is=69d585e5&hm=0772a5e4d6a4a294053d2a18c42f75fd9c0ed034a45196c186bee5c4dcd97ca9&=&format=webp" />
-</p>
-  <a align="left" dir="auto">&lrm; &lrm; &lrm;
-    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi don't mind c+h ; dnc thanks. — don't expect me to int w you, if i do, i might be dry.
-    <p align="left">
-     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://github.com/6ullets">my loyal uraume.
-  </a>
-</details>
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
     <p align="center">
       <img align="center" width="180" src="https://i.pinimg.com/736x/c5/a0/89/c5a08960c26b18e717ac53bf359c4238.jpg">
@@ -30,3 +18,16 @@
 <a align="right"
 <a href="https://cynicalover.atabook.org/">sign my ata
 
+
+<div align="center">
+  <details>
+ <summary>...</summary>
+<p align="left">
+<img align="left" width="220"  src="https://media.discordapp.net/attachments/1118272529061134428/1491203942669881354/Sukuna_lets_go_of_his_curse2.jpg?ex=69d6d765&is=69d585e5&hm=0772a5e4d6a4a294053d2a18c42f75fd9c0ed034a45196c186bee5c4dcd97ca9&=&format=webp" />
+</p>
+  <a align="left" dir="auto">&lrm; &lrm; &lrm;
+    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi don't mind c+h ; dnc thanks. — don't expect me to int w you, if i do, i might be dry.
+    <p align="left">
+     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://github.com/6ullets">my loyal uraume.
+  </a>
+</details>
