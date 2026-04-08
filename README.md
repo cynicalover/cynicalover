@@ -6,7 +6,7 @@
   <details>
  <summary>...</summary>
     <p align="center">
-<img align="center" width="250"  src="https://cdn.discordapp.com/attachments/1118272529061134428/1491538682614906928/20260408_011712dd.png?ex=69d80f25&is=69d6bda5&hm=2f0c08eed099dd764359662afb71f0b8f46ed1a5a55e7332167b2f679dc51583&" />
+<img align="center" width="450"  src="https://cdn.discordapp.com/attachments/1118272529061134428/1491538682614906928/20260408_011712dd.png?ex=69d80f25&is=69d6bda5&hm=2f0c08eed099dd764359662afb71f0b8f46ed1a5a55e7332167b2f679dc51583&" />
 </p>
  <a href="https://github.com/6ullets">my loyal uraume.
   </a>
