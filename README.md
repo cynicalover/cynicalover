@@ -1,6 +1,6 @@
 <a align="center" href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Instrument+Serif&letterSpacing=0.2rem&duration=20&pause=10000000000000000000000000000000000000000000000000&color=FFFFFF&center=true&repeat=false&width=435&height=25&lines=...this+is%3F" alt="Typing SVG" /></a>
 <p align="center">
-<img align="center" width="650" height="580" src="https://cdn.discordapp.com/attachments/1118272529061134428/1491528994787688541/20260408_011705c.png?ex=69d8061f&is=69d6b49f&hm=5eb84fcd621969162d61293e97e008e10209eac1f6821ef86e9f6e7a11cdbd8f&">
+<img align="center" width="690" height="600" src="https://cdn.discordapp.com/attachments/1118272529061134428/1491528994787688541/20260408_011705c.png?ex=69d8061f&is=69d6b49f&hm=5eb84fcd621969162d61293e97e008e10209eac1f6821ef86e9f6e7a11cdbd8f&">
 </p>
 <p align="center">
   	‟ i don't know... it's always like this. when i wake up, everyone around me is cold. father and mother both died like this because of me. ”
