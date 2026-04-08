@@ -13,6 +13,6 @@
 <div align="center">
   <details>
  <summary>...</summary>
-  <img align="center" width="400"  src="https://media.discordapp.net/attachments/1118272529061134428/1491560206180548748/bum.png?ex=69d82331&is=69d6d1b1&hm=f75d368f80f3531f53464e929a0774420e6e932abda6a878a42675b2925e70b7&=&format=webp&quality=lossless&width=1817&height=904">
+  <img align="center" width="700"  src="https://media.discordapp.net/attachments/1118272529061134428/1491560206180548748/bum.png?ex=69d82331&is=69d6d1b1&hm=f75d368f80f3531f53464e929a0774420e6e932abda6a878a42675b2925e70b7&=&format=webp&quality=lossless&width=1817&height=904">
 </p>ㅤㅤㅤㅤㅤ
 </details>
