@@ -14,6 +14,4 @@
   <details>
  <summary>...</summary>
    wok
- <a href="https://github.com/6ullets">my loyal uraume.
-  </a>
 </details>
