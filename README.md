@@ -1,8 +1,8 @@
 <p align="center">
-<img align="center" width="900"  src="https://cdn.discordapp.com/attachments/1118272529061134428/1491528994787688541/20260408_011705c.png?ex=69d8061f&is=69d6b49f&hm=5eb84fcd621969162d61293e97e008e10209eac1f6821ef86e9f6e7a11cdbd8f&">
+<img align="center" width="1000" height="900" src="https://cdn.discordapp.com/attachments/1118272529061134428/1491528994787688541/20260408_011705c.png?ex=69d8061f&is=69d6b49f&hm=5eb84fcd621969162d61293e97e008e10209eac1f6821ef86e9f6e7a11cdbd8f&">
 </p>ㅤㅤㅤㅤㅤ
 <p align="right">
-<img align="right" width="300"  src="https://media.discordapp.net/attachments/1118272529061134428/1491540139225120808/20260408_011705left.jpg?ex=69d81080&is=69d6bf00&hm=c0225372042a356fa6b938d8a49b12e3a4392a3850f68bb503778820642e3981&=&format=webp&width=1676&height=904" />
+<img align="right" width="400"  src="https://media.discordapp.net/attachments/1118272529061134428/1491545909815939202/20260408_011705right.png?ex=69d815e0&is=69d6c460&hm=091b614156982474a96bb592559d36cdb48896eaf21432be3aeb8e18b763cb2d&=&format=webp&quality=lossless&width=1077&height=1008" />
 </p>
 <div align="center">
   <details>
