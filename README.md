@@ -1,10 +1,8 @@
 <p align="center">
-<img align="center" width="1100" src="https://media.discordapp.net/attachments/1118272529061134428/1491189750303035614/lflnqoeulgsb1.jpg?ex=69d6ca2d&is=69d578ad&hm=958f2660049ca63fa19d350e8ffbe7350aa25fe3fbb961cdc0f3f9a6c6e7f595&=&format=webp&width=1862&height=618">
+<img align="center" width="1100" src="https://media.discordapp.net/attachments/1118272529061134428/1491519165058781335/20260408_011705b.png?ex=69d7fcf8&is=69d6ab78&hm=40abca731ce0732ce968a9044ee35a6da1736c63d95a5b050abd7e4d324a3a0b&=&format=webp&quality=lossless&width=1817&height=904">
 </p>
 <p align="center">
-  	‟ I understand love and I say to you... love is worthless. 
-  I've never needed anyone to satisfy me. I eat when I wanna eat, play with what amuses me, and kill whoever's in my way. 
-  I live as befits my nature. If no one can grasp that, then that's their problem. ”
+  	‟ i don't know... it's always like this. when i wake up, everyone around me is cold. father and mother both died like this because of me. ”
 </p>ㅤㅤㅤㅤㅤㅤ
 
 <div align="center">
