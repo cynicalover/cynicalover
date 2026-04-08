@@ -3,5 +3,5 @@
 </p>ㅤㅤㅤㅤㅤ
 <p align="center">
 <img align="right" width="200"  src="https://media.discordapp.net/attachments/1118272529061134428/1491545909815939202/20260408_011705right.png?ex=69d815e0&is=69d6c460&hm=091b614156982474a96bb592559d36cdb48896eaf21432be3aeb8e18b763cb2d&=&format=webp&quality=lossless&width=1077&height=1008" />
-  <img align="center" width="670"  src="https://media.discordapp.net/attachments/1118272529061134428/1491548805240197332/Untitled92_20260408230621.png?ex=69d81892&is=69d6c712&hm=10219cfff79d22269e8c534cf18fe4d12d1ccd85ca6150529b2f10e2eb18c015&=&format=webp&quality=lossless&width=1253&height=1008"/>
+<img align="center" width="660"  src="https://media.discordapp.net/attachments/1118272529061134428/1491548805240197332/Untitled92_20260408230621.png?ex=69d81892&is=69d6c712&hm=10219cfff79d22269e8c534cf18fe4d12d1ccd85ca6150529b2f10e2eb18c015&=&format=webp&quality=lossless&width=1253&height=1008"/>
 </p>
