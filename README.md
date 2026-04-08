@@ -1,5 +1,5 @@
 <p align="center">
-<img align="center" width="1100" src="https://media.discordapp.net/attachments/1118272529061134428/1491519165058781335/20260408_011705b.png?ex=69d7fcf8&is=69d6ab78&hm=40abca731ce0732ce968a9044ee35a6da1736c63d95a5b050abd7e4d324a3a0b&=&format=webp&quality=lossless&width=1817&height=904">
+<img align="center" width="900" src="https://media.discordapp.net/attachments/1118272529061134428/1491519165058781335/20260408_011705b.png?ex=69d7fcf8&is=69d6ab78&hm=40abca731ce0732ce968a9044ee35a6da1736c63d95a5b050abd7e4d324a3a0b&=&format=webp&quality=lossless&width=1817&height=904">
 </p>
 <p align="center">
   	‟ i don't know... it's always like this. when i wake up, everyone around me is cold. father and mother both died like this because of me. ”
