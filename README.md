@@ -1,9 +1,6 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Instrument+Serif&size=24&letterSpacing=0.2rem&duration=20&pause=1000&color=CFCFCF&center=true&width=435&lines=...this+is%3F" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Instrument+Serif&size=20&letterSpacing=0.2rem&duration=20&pause=1000&color=FFFFFF&center=true&width=435&lines=...this+is%3F" alt="Typing SVG" /></a>
 <p align="center">
-<img align="center" width="700" src="https://media.discordapp.net/attachments/1118272529061134428/1491522148064563361/20260408_011705a.png?ex=69d7ffbf&is=69d6ae3f&hm=f817681005fa95870cfb09fd8eff9ec73c750f7115249d82a1817957886d4590&=&format=webp&quality=lossless&width=1394&height=904">
-</p>
-<p align="center">
-<img align="center" width="900" src="https://media.discordapp.net/attachments/1118272529061134428/1491519165058781335/20260408_011705b.png?ex=69d7fcf8&is=69d6ab78&hm=40abca731ce0732ce968a9044ee35a6da1736c63d95a5b050abd7e4d324a3a0b&=&format=webp&quality=lossless&width=1817&height=904">
+<img align="center" width="900" src="https://cdn.discordapp.com/attachments/1118272529061134428/1491526411809329324/20260408_011705c.png?ex=69d803b7&is=69d6b237&hm=de5b4e2162a29e56849057ea9bea6a9d3688e9e25ddc40e5b743e830174d538a&">
 </p>
 <p align="center">
   	‟ i don't know... it's always like this. when i wake up, everyone around me is cold. father and mother both died like this because of me. ”
