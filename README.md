@@ -10,3 +10,10 @@
 <a align="right"
 <a href="https://cynicalover.atabook.org/">sign my ata
 </a>
+<div align="center">
+  <details>
+ <summary>...</summary>
+   wok
+ <a href="https://github.com/6ullets">my loyal uraume.
+  </a>
+</details>
